@@ -1,1 +1,1 @@
-### Hi there 👋, I am Tsaani from Indonesia and I passionate about web development technologies
+### Hi there 👋, I passionate about web development technologies
